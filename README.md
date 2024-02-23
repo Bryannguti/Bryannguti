@@ -1,4 +1,4 @@
-### Hi there 👋
+### I am a web and mobile developer, I like to research and learn new things every day I perfect my skills to be more productive and do my work more efficient!!!
 
 <!--
 **Bryannguti/Bryannguti** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

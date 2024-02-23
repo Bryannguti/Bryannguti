@@ -1,3 +1,4 @@
+![0a10af70-6cbf-46df-9071-0ff586a3b1d6](https://github.com/Bryannguti/Bryannguti/assets/106136031/0178ace9-5f79-42fe-a9ca-a3dcca1a054a)
 ##### I am a web and mobile developer, I like to research and learn new things every day I perfect my skills to be more productive and do my work more efficient!!!
 
 <!--
